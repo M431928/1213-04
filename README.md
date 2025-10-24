@@ -1,6 +1,8 @@
 _a6-h_a6-i">Lista de conversaciones
 
-secretas</div><div class="_2ph_ _a6-p"><p></p><div><div><div clase="_3-95
+secretas</div><div class<img width="1080" height="2400" alt="1000060250" src="https://github.com/user-attachments/assets/2bdef7f9-31f4-4370-ab7a-ad4ac0cc25a9" />
+<img width="1080" height="2400" alt="1000060250" src="https://github.com/user-attachments/assets/55dcd56e-00f2-4dc2-a045-d11709638ca5" />
+="_2ph_ _a6-p"><p></p><div><div><div clase="_3-95
 
 _a6-g"></div></div><div><div clase="_3-95
 
